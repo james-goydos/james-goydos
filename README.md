@@ -21,19 +21,18 @@ You can also find James Goydos on Facebook @ https://www.facebook.com/jamesgoydo
 - Cancer Research: 
 - Google Scholar: https://scholar.google.com/citations?user=_k3AycwAAAAJ&hl=en
 - Doximity: https://www.doximity.com/cv/james-goydos-md 
-
-US Health News: https://health.usnews.com/doctors/james-goydos-2492728 
-Medika Life: https://medika.life/author/jamesgoydosmd/ 
-Instagram: https://www.instagram.com/jamesgoydosmd/ 
-Pinterest: https://www.pinterest.com/jamesgoydos/
-Linkedin: https://www.linkedin.com/in/jamesgoydos 
-YouTube: https://www.youtube.com/channel/UCc2owL5pVKMuT3kkSqTg15A?view_as=subscriber
-Academia: https://independent.academia.edu/JamesGoydos
-MD: https://www.md.com/doctor/james-goydos-md
-Academia: https://independent.academia.edu/JamesGoydos 
-Vitals:https://www.vitals.com/doctors/Dr_James_Goydos.html
-Muck Rack: https://muckrack.com/james-goydos-md
-Reedsy: https://reedsy.com/author/james-goydos
+- US Health News: https://health.usnews.com/doctors/james-goydos-2492728 
+- Medika Life: https://medika.life/author/jamesgoydosmd/ 
+- Instagram: https://www.instagram.com/jamesgoydosmd/ 
+- Pinterest: https://www.pinterest.com/jamesgoydos/
+- Linkedin: https://www.linkedin.com/in/jamesgoydos 
+- YouTube: https://www.youtube.com/channel/UCc2owL5pVKMuT3kkSqTg15A?view_as=subscriber
+- Academia: https://independent.academia.edu/JamesGoydos
+- MD: https://www.md.com/doctor/james-goydos-md
+- Academia: https://independent.academia.edu/JamesGoydos 
+- Vitals:https://www.vitals.com/doctors/Dr_James_Goydos.html
+- Muck Rack: https://muckrack.com/james-goydos-md
+- Reedsy: https://reedsy.com/author/james-goydos
 
 -⚕️More Information ...
 
