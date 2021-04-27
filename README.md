@@ -18,9 +18,9 @@ Interested in following me on Kaggle? Check out https://www.kaggle.com/jamesgoyd
 
 You can also find James Goydos on Facebook @ https://www.facebook.com/jamesgoydosmd and Medium @ https://jamesgoydosmd.medium.com where he writes on cancer and detection of melanoma with cameras and computer vision. 
 
-Cancer Research: 
-Google Scholar: https://scholar.google.com/citations?user=_k3AycwAAAAJ&hl=en
-Doximity: https://www.doximity.com/cv/james-goydos-md 
+- Cancer Research: 
+- Google Scholar: https://scholar.google.com/citations?user=_k3AycwAAAAJ&hl=en
+- Doximity: https://www.doximity.com/cv/james-goydos-md 
 
 US Health News: https://health.usnews.com/doctors/james-goydos-2492728 
 Medika Life: https://medika.life/author/jamesgoydosmd/ 
