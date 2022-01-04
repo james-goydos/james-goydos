@@ -16,7 +16,7 @@ Interested in following me on Kaggle? Check out https://www.kaggle.com/jamesgoyd
 
 - 🔗 Follow ...
 
-You can also find James Goydos on Facebook @ https://www.facebook.com/jamesgoydosmd and Medium @ https://jamesgoydosmd.medium.com where he writes on cancer and detection of melanoma with cameras and computer vision. 
+You can also find James Goydos on Facebook @ https://www.facebook.com/jamesgoydosmd and Medium @ https://jamesgoydosmd.medium.com where he writes on cancer and detection of melanoma with cameras and computer vision. For more data on AI, computer vision, and cancer, check out https://refind.com/James-goydos-md/ai--cancer---amp--computer-vision
 
 - Google Scholar: https://scholar.google.com/citations?user=_k3AycwAAAAJ&hl=en
 - Doximity: https://www.doximity.com/cv/james-goydos-md 
@@ -32,6 +32,9 @@ You can also find James Goydos on Facebook @ https://www.facebook.com/jamesgoydo
 - Vitals:https://www.vitals.com/doctors/Dr_James_Goydos.html
 - Muck Rack: https://muckrack.com/james-goydos-md
 - Reedsy: https://reedsy.com/author/james-goydos
+-Carrd: https://james-goydos.carrd.co 
+-YourStack- https://yourstack.com/@jamesgoydosmd
+-Refind- https://refind.com/James-goydos-md 
 
 -⚕️More Information ...
 
